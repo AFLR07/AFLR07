@@ -1,4 +1,4 @@
-## Hi there 👋
+## Oi! eu existo neste site até que eu suma para sempre! ;)
 
 <!--
 **AFLR07/AFLR07** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
